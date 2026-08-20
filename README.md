@@ -31,9 +31,8 @@
 ---
 
 ### 📫 Connect With Me
-- 📧 Email: your-email@example.com  
-- 💼 LinkedIn: add-your-link-here  
-
+- 📧 Email:aryanvirdi07.com  
+- 💼 LinkedIn: https://www.linkedin.com/in/aryan-virdi-70a808312?utm_source=share_via&utm_content=profile&utm_medium=member_ios
 ---
 
 ### ⚡ Fun Fact
